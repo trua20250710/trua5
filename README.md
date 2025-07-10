@@ -10,4 +10,4 @@
 
 这些平台专注于精品人妻少妇嫩草系列视频，内容丰富且更新及时，用户可快速查找所需影片。每个视频页面提供影片时长、主演及清晰度等详细信息，支持高清视频播放，并根据网络环境自动优化画质，确保观看流畅。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/trua20250710/trua5 ）</span>
